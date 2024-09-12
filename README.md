@@ -11,4 +11,4 @@ Feel free to explore the new features and provide feedback!
 
 ![1](https://github.com/user-attachments/assets/cd8b3352-775f-45f9-a263-880a409afc31)
 
-![2](https://github.com/user-attachments/assets/0aa64e3c-7204-4bae-8036-a76ddbd3c3e2)
+![2](https://github.com/user-attachments/assets/65367886-d0a8-4a63-bb1f-832838136305)
